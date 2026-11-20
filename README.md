@@ -1,0 +1,1 @@
+# 1000-Ways-to-get-Rich
